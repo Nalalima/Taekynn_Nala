@@ -1,0 +1,2 @@
+# Taekynn_Nala
+🚫 desrespeito
